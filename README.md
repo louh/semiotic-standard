@@ -2,8 +2,6 @@
 
 For all commercial trans-stellar utility lifter and heavy element transport spacecraft. — April 16, 2078
 
-**#11 (Astronic System - Electronics) and #15 (Exhaust) are on sale [at Stickermule](https://www.stickermule.com/user/1070707055/stickers)!**
-
 ![contact-sheet](https://cloud.githubusercontent.com/assets/2553268/12135732/64b650aa-b40d-11e5-8ab2-6b2c4d86dd0e.png)
 
 ---
